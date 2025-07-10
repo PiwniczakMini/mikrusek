@@ -5,13 +5,13 @@ date: 2025-07-10T15:46:00+02:00
 description: Pierwszy wpis
 image: https://storage.googleapis.com/pod_public/1300/154400.jpg
 tags:
-  - newbegin
+  - lets_begin
 categories:
   - blog
 ---
 Cześć Jula 😙 Chciałem tylko powiedzieć, że bardzo Cie kocham (tak, iż nie mogę już o niczym innym myśleć ❤️ ). 
 
-Masz bardzo dobre serduszko, że pomagasz temu Panu ❤️❤️❤️.  
+Masz bardzo dobre serduszko, że pomogłaś temu Panu ❤️❤️❤️.  
 
  Strona jest darmowa, gdybyś się zastanawiała - dożywotnio 😘
 
