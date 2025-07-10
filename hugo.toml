@@ -1,0 +1,4 @@
+baseURL = 'http://frog03-40259.wykr.es/'
+languageCode = 'en-us'
+title = 'My New Hugo Site'
+theme= 'papermod'
