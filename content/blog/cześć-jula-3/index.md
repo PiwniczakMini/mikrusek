@@ -13,6 +13,8 @@ Cześć Jula 😙 Chciałem tylko powiedzieć, że bardzo Cie kocham (tak, iż n
 
 Masz bardzo dobre serduszko, że pomogłaś temu Panu ❤️❤️❤️ (mimo że gdzieś zniknął). 
 
+Będę z Tobą zawsze - na dobre i złe.  
+
  Strona jest darmowa, gdybyś się zastanawiała - dożywotnio 😘
 
 Raczej nikt nie będzie tu chciał na razie poza Tobą zaglądać, ale w niedługim czasie strona troszkę ruszy  do przodu (ale wpis pozostanie tylko do wglądu dla Ciebie 😈)
