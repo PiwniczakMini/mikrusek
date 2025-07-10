@@ -11,7 +11,7 @@ categories:
 ---
 Cześć Jula 😙 Chciałem tylko powiedzieć, że bardzo Cie kocham (tak, iż nie mogę już o niczym innym myśleć ❤️ ). 
 
-Masz bardzo dobre serduszko, że pomagasz temu Panu.  
+Masz bardzo dobre serduszko, że pomagasz temu Panu ❤️❤️❤️.  
 
  Strona jest darmowa, gdybyś się zastanawiała - dożywotnio 😘
 
