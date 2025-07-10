@@ -11,6 +11,8 @@ categories:
 ---
 Cześć Jula 😙 Chciałem tylko powiedzieć, że bardzo Cie kocham (tak, iż nie mogę już o niczym innym myśleć ❤️ ). 
 
+Masz bardzo dobre serduszko, że pomagasz temu Panu.  
+
  Strona jest darmowa, gdybyś się zastanawiała - dożywotnio 😘
 
 Raczej nikt nie będzie tu chciał na razie poza Tobą zaglądać, ale w niedługim czasie strona troszkę ruszy  do przodu (ale wpis pozostanie tylko do wglądu dla Ciebie 😈)
