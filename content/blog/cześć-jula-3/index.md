@@ -1,6 +1,6 @@
 ---
 title: Myśli kilka...
-draft: true
+draft: false
 date: 2026-02-11T23:38:00+01:00
 description: pierwszy wpis
 image: 1000005261.jpg
